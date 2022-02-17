@@ -1,0 +1,5 @@
+-Hi, I’m @CandyCaneChoas
+-I’m interested in ... Codeing and Art
+-I’m currently learning ... Quantum Physics
+-I’m looking to collaborate on ... Nothing im solo
+-How to reach me ... ℂ𝕒𝕟𝕕𝕪ℂ𝕒𝕟𝕖ℂ𝕙𝕠𝕒𝕤#0411
